@@ -17,3 +17,10 @@ RECOMMENDED PERIPHERALS
 SPONSORSHIP
 
 ![Image](https://github.com/user-attachments/assets/94be4760-5f52-4b47-8833-c575175ef99d)
+
+(MOBILE APP VIEW)
+
+![Image](https://github.com/user-attachments/assets/db94878a-1fa2-4e5b-95c8-ff4773a54279)
+![Image](https://github.com/user-attachments/assets/b95ef449-c3de-45ba-83cf-13d2ed4dd1bb)
+![Image](https://github.com/user-attachments/assets/f685c945-c254-44ff-ac8a-555b552cede8)
+
